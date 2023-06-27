@@ -1,4 +1,3 @@
 # Simple-Portfolio
-Simple Portfolio
 
-https:/t.me/DHTMLSC
+**TG CHANNEL :** https://t.me/DHTMLSC
